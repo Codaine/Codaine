@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Codaine
-- 👀 I’m interested in coding 😫😩💦
+- 👀 I’m interested in coding 😫😩
 - 🌱 I’m currently learning how to tie my shoes
 - 💞️ I’m looking to collaborate on git hub 🥵
 - 📫 How to reach me: public transport
